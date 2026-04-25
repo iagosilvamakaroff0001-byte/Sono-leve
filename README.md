@@ -1,2 +1,2 @@
 # Sono-leve
-O travesseiro ortopédico da Sono Leve foi feito pra quem quer dormir melhor e acordar renovado 😍✨
+Página de vendas do travesseiro ortopédico Sono Leve com botão de compra rápida via WhatsApp.
